@@ -9,7 +9,7 @@
 - 👯 I've a dregree in Computer Science.
 - 🤔 I can speak with Brazilian Portuguese and English 
 - 💬 I'm griding Destiny 2 again and like to play some Warzone too.
-- 📫 How to reach me: [e-mail] (fsdedoni@hotmail.com) and my socials FelipeDedoni
+- 📫 How to reach me: e-mail fsdedoni@hotmail.com and my socials FelipeDedoni
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: I'm trying to be a streamer on [Twitch] (https://twitch.com/dedoni6)
+- ⚡ Fun fact: I'm trying to be a streamer on Twitch https://twitch.com/dedoni6
 
